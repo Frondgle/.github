@@ -1,5 +1,5 @@
-## Hi there 👋
- suup 
+## Stay Gold, Cowboys, Stay Gold
+
 <!--
 
 **Here are some ideas to get you started:**
