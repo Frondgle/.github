@@ -1,5 +1,18 @@
 ## Stay Gold, Cowboys, Stay Gold
 
+#### Gold Cowboys composing code 
+
+♤ Frondgle Solutions is comprised of 
+♤ [A.J.](https://github.com/gonzalez-aj) and 
+♤ [Eric Frey](https://github.com/ericlfrey)
+♧ We are working on The Sonatore Archive 
+♢ in honor of Sonatore's memory
+
+♡ emosurrealism for life
+
+
+
+
 <!--
 
 **Here are some ideas to get you started:**
